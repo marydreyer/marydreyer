@@ -7,7 +7,7 @@ I’m currently working as a QA Analyst Intern at Instituto de Pesquisas Eldorad
 How to reach me: mariana.odreyer@gmail.com 
 
 Fun facts! 
- - I'm absolutely in love with Grêmio Futebol Portoalegrense 💙🖤🤍 (best soccer team in Brazil :P)
+ - I'm absolutely in love with Grêmio Foot-ball Portoalegrense 💙🖤🤍 (best soccer team in Brazil :P)
  - Love Movies, Series and Animes.
  - I Have a dog that I named after my favorite character: Indiana Jones 🐶
 
