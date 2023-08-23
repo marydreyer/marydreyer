@@ -9,7 +9,7 @@ How to reach me: mariana.odreyer@gmail.com
 Fun facts! 
  - I'm absolutely in love with Grêmio Foot-ball Portoalegrense 💙🖤🤍 (best soccer team in Brazil :P)
  - Love Movies, Series and Animes.
- - I Have a dog that I named after my favorite character: Indiana Jones 🐶
+ - I've named my dog after my favorite character: Indiana Jones 🐶
 
 So, I hope you guys like my work! 
 
