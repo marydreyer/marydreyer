@@ -1,16 +1,15 @@
-### Hi there 👋
+Hi!! 
 
-<!--
-**marydreyer/marydreyer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I'm a student of Analysis and systems development in SENAC_RS!
 
-Here are some ideas to get you started:
+I’m currently working as a QA Analyst Intern at Instituto de Pesquisas Eldorado and learning all about test automation!! 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+How to reach me: mariana.odreyer@gmail.com / https://www.linkedin.com/in/marianadreyer/
+
+Fun facts! 
+ - I'm absolutely in love with Grêmio Futebol Portoalegrense 💙🖤🤍 (best soccer team in Brazil :P)
+ - Love Movies, Series and Animes.
+ - I Have a dog that I named after my favorite character: Indiana Jones 🐶
+
+So, I hope you guys like my work! 
+
