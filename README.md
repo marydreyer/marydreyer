@@ -2,7 +2,7 @@ Hi!!
 
 I'm a student of Analysis and systems development in SENAC_RS!
 
-I’m currently working as a QA Analyst Intern at Instituto de Pesquisas Eldorado and learning all about test automation!! 
+I’m currently working as a QA Analyst at Instituto de Pesquisas Eldorado and learning all about test automation!! 
 
 How to reach me: mariana.odreyer@gmail.com 
 
